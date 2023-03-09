@@ -3,5 +3,5 @@
 ## Members:
 
 Kyle Bricker - 1578023  
-Max Eberle -   
-Dhruv Something or other  
+Max Eberle - 1576215  
+Dhruv "Double McCheese" Pranlal - 1628666
