@@ -3,5 +3,5 @@
 ## Members:
 
 Kyle Bricker - 1578023  
-Max Eberle - 
+Max Eberle -   
 Drhuv Something or other  
